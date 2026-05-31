@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RASB950612MJCMNL06
+RASB950612MJCMNL06
